@@ -6,9 +6,9 @@
 </p><br>
 Мои контакты:
 
-Почта: kozikoffartem@yandex.ru    
+Почта: shabaevaleksbd@gmail.com    
 
-Телеграм: https://t.me/kozikoff14
+Телеграм: https://t.me/Aleksey_Shabaev90
 
 # Pet-project    
 
